@@ -113,3 +113,30 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Lemon Poppy Seed Muffins
+
+Ingredients:
+- 2 cups all-purpose flour
+- 3/4 cup white sugar
+- 1/4 cup poppy seeds
+- 2 teaspoons baking powder
+- 1 teaspoon baking soda
+- 1/2 teaspoon salt
+- 2 eggs
+- 1 cup lemon-flavored yogurt
+- 1/4 cup vegetable oil
+- 1 tablespoon grated lemon zest
+- 1/3 cup lemon juice
+- 3 tablespoons white sugar
+
+Instructions:
+1. Preheat oven to 400°F (205°C) and lightly grease a 12-cup muffin tin.
+2. In a bowl, combine flour, 3/4 cup sugar, poppy seeds, baking powder, baking soda, and salt.
+3. In another bowl, mix eggs, yogurt, oil, and lemon zest until well blended.
+4. Pour the wet ingredients over the dry ingredients and mix until just combined. Do not overmix.
+5. Spoon the batter evenly into the prepared muffin cups.
+6. Bake for 20 minutes.
+7. While baking, stir lemon juice and 3 tablespoons sugar together until the sugar dissolves.
+8. Remove muffins from the oven and pierce the tops with a toothpick. Pour about 1 tablespoon of the lemon juice mixture over each muffin.
+9. Let muffins cool in the pan for 10 minutes before removing.
